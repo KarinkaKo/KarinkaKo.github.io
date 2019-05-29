@@ -1,1 +1,0 @@
-# KarinkaKo.github.io
